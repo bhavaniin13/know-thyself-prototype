@@ -1,1 +1,1 @@
-Team COSMIX: B. Bhavani, Bhagyashree, Baby.
+Team COSMIX: B. Bhavani, Bhagyashree, Baby
